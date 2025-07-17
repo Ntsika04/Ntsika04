@@ -2,7 +2,7 @@
 
 🧠I am a passionate Software Engineering student with a keen interest in creating innovative tech solutions. Currently pursuing my studies.<br/>
 ↘️Also I share my knowledge and expertise as a tutor at Rosebank College.<br/>
-👾I develop mobile applications and games to maintain consistency in my work and continually enhance my skills.<br/>
+👾I develop mobile applications, Websites and games to maintain consistency in my work and continually enhance my skills.<br/>
 🫂I actively showcases my projects on Instagram, posting engaging reels that highlight my journey.(https://www.instagram.com/ntsikafana?igsh=bDRwZ2ZjNnJ2dTkz&utm_source=qr)
 
 
